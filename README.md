@@ -1,1 +1,1 @@
-(Google Slides)[https://docs.google.com/presentation/d/1KEz0-jD95rFVjKAOX_ywczUgCBet7y_9zS-y9-Q5PmI/edit?usp=sharing]
+[Google Slides](https://docs.google.com/presentation/d/1KEz0-jD95rFVjKAOX_ywczUgCBet7y_9zS-y9-Q5PmI/edit?usp=sharing)
